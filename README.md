@@ -1,4 +1,4 @@
-## Olá Pessoal me shamo Robério Maciel 👋
+## Olá Pessoal me chamo Robério Maciel 👋
 
 - 🔭 Atualmente estou como representante da empresa SGBR Sistemas
 - 🌱 Atualmente estou fazendo curso de desenvolvimento wed na UTD  - Universidade do Trabalho Digital
